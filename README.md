@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me - You Cant! cuz im frx
+- 📫 How to reach me - You Cant!
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ...
 
